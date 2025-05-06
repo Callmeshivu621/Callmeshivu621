@@ -2,7 +2,7 @@
 - 👀 I’m interested in hardware and electronics 
 - 🌱 I’m currently learning in indian institute of information technology Dharwad 
 - 💞️ I’m looking to collaborate on digital VLSI and embedded systems
-- 📫 How to reach me_ contact : 7676268429
+- 📫 How to reach me_ contact : 9035557982
 - 😄 motto : ...💫 Risk is always better than regret 💫
 
 
